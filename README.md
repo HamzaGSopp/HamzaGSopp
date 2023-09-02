@@ -5,4 +5,4 @@
 ![Tamazia](https://cronitor.io/badges/LvWG0n/production/g9BhUja3vczb2Q-GB0ewzH0490g.svg)
 
 
-![Visistor](https://visitor-badge.laobi.icu/badge?page_id=ZetaMap.ZetaMap )
+![Visistor](https://visitor-badge.laobi.icu/badge?page_id=HamzaGSopp )
